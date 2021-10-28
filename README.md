@@ -1,2 +1,3 @@
-#Corruption Mod ChomeBook Unblocked
+#CorruptionMod
+
 Hello this is the corruption mod On chromebook or anything else optomized to be played on browser
